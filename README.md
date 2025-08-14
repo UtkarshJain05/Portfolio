@@ -24,4 +24,4 @@ To create a central hub for recruiters, hiring managers, and collaborators to ex
 
 📬 **Connect With Me:**  
 - **LinkedIn:** [Utkarsh Jain](https://linkedin.com/in/utkarshjain)  
-- **Email:** your.email@example.com
+- **Email:** jain.utkarsh.5605@gmail.com
